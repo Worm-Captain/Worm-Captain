@@ -13,5 +13,5 @@
  ㅤㅤ ㅤ  ㅤㅤ ㅤ  ㅤㅤ ㅤ  ㅤㅤ ㅤ  ㅤㅤ ㅤ  ㅤㅤ ㅤ  ㅤ ㅤ 
 
 **Im very friendly, i might act dry tho, but i will try my best to make you happy!**
- ㅤㅤ ㅤ  ㅤㅤ ㅤ  ㅤㅤ ㅤ  ㅤㅤ ㅤ  ㅤㅤ ㅤ  ㅤㅤ ㅤ  ㅤㅤ ㅤ 
+ 
 <img width="411" height="28" alt="Image" src="https://github.com/user-attachments/assets/aaa1d4c4-bcd7-4019-92c3-2791e2a40c53" />
